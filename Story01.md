@@ -1,0 +1,1 @@
+One day, Frank was walking down the street when he encountered a lady. In the blink of an eye, a thief wearing black came along and nabbed a luxury handbag out of her. Shocked, Frank quickly regianed his composure and gave chase for the thief. However, was no match for the thief and eventually lost him. Oh no, what will Frank do?
